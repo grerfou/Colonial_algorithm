@@ -6,7 +6,7 @@
 **Readings :**
 
 - [Au Brésil pour le tour du monde art et jeu vidéo](https://poptronics.fr/Au-Bresil-pour-le-tour-du-monde)
-- [Science in Action_ chapter on cartography as a tool for production of western authority](./writing/reading/Bruno_Latour_Science-in-Action_chapter-on-cartography-as-a-tool-for-production-of-western-authority.pdf)
+- [Bruno Latour, Science in Action_ chapter on cartography as a tool for production of western authority](./writing/reading/Bruno_Latour_Science-in-Action_chapter-on-cartography-as-a-tool-for-production-of-western-authority.pdf)
 
 
 **Collective :**
