@@ -8,6 +8,7 @@
 - [Au Brésil pour le tour du monde art et jeu vidéo](https://poptronics.fr/Au-Bresil-pour-le-tour-du-monde)
 - [Bruno Latour, Science in Action_ chapter on cartography as a tool for production of western authority](./writing/reading/Bruno_Latour_Science-in-Action_chapter-on-cartography-as-a-tool-for-production-of-western-authority.pdf)
 - [Garnette Cadogan, Walking While Black](/writing/reading/Cadogan_Walking-While-Black.pdf)
+- [Kai Van Eikels interview](/writing/reading/Kai_Van_Eikels_interview_CuteSpace.pdf)
 
 
 **Collective :**
