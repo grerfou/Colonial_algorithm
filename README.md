@@ -14,6 +14,7 @@
 - [Michael_Janus_Colonial-evidences-and-Persons-of-interest-that-left-their-footmark-in-Karlsruhe](/writing/reading/Michael_Janus_Colonial-evidences-and-Persons-of-interest-that-left-their-footmark-in-Karlsruhe.pdf)
 - [Springgay_Truman_Walking_Methodologies_in_a_More-Than-Human-World_Walkinglab-Routledge](/writing/reading/Springgay_Truman_Walking_Methodologies_in_a_More-Than-Human-World_Walkinglab-Routledge.pdf)
 - [this_is_not_an_atlas-(counter-cartography)](/writing/reading/this_is_not_an_atlas-(counter-cartography).pdf)
+- [Wasilewska Ewa thesis defence presentation Brussels](Wasilewska_Ewa_thesis_defence_presentation_Brussels.pdf)
 
 
 **Collective :**
