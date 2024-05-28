@@ -9,6 +9,7 @@
 - [Bruno Latour, Science in Action_ chapter on cartography as a tool for production of western authority](./writing/reading/Bruno_Latour_Science-in-Action_chapter-on-cartography-as-a-tool-for-production-of-western-authority.pdf)
 - [Garnette Cadogan, Walking While Black](/writing/reading/Cadogan_Walking-While-Black.pdf)
 - [Kai Van Eikels interview](/writing/reading/Kai_Van_Eikels_interview_CuteSpace.pdf)
+- [Markus-Miessen, The Nightmare of Participation](/writing/reading/Markus-Miessen_The-Nightmare-of-Participation-(Crossbench-Praxis-as-A-Mode-of-Criticality).pdf)
 
 
 **Collective :**
