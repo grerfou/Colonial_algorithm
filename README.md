@@ -11,6 +11,7 @@
 - [Kai Van Eikels interview](/writing/reading/Kai_Van_Eikels_interview_CuteSpace.pdf)
 - [Markus-Miessen, The Nightmare of Participation](/writing/reading/Markus-Miessen_The-Nightmare-of-Participation-(Crossbench-Praxis-as-A-Mode-of-Criticality).pdf)
 - [Memoire de master Karlsruhe_postcolonial](/writing/reading/Masterarbeit_Karlsruhe_postkolonial.pdf)
+- [Michael_Janus_Colonial-evidences-and-Persons-of-interest-that-left-their-footmark-in-Karlsruhe](/writing/reading/Michael_Janus_Colonial-evidences-and-Persons-of-interest-that-left-their-footmark-in-Karlsruhe.pdf)
 
 
 **Collective :**
