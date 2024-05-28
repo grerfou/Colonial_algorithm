@@ -12,6 +12,7 @@
 - [Markus-Miessen, The Nightmare of Participation](/writing/reading/Markus-Miessen_The-Nightmare-of-Participation-(Crossbench-Praxis-as-A-Mode-of-Criticality).pdf)
 - [Memoire de master Karlsruhe_postcolonial](/writing/reading/Masterarbeit_Karlsruhe_postkolonial.pdf)
 - [Michael_Janus_Colonial-evidences-and-Persons-of-interest-that-left-their-footmark-in-Karlsruhe](/writing/reading/Michael_Janus_Colonial-evidences-and-Persons-of-interest-that-left-their-footmark-in-Karlsruhe.pdf)
+- [Springgay_Truman_Walking_Methodologies_in_a_More-Than-Human-World_Walkinglab-Routledge](/writing/reading/Springgay_Truman_Walking_Methodologies_in_a_More-Than-Human-World_Walkinglab-Routledge.pdf)
 
 
 **Collective :**
