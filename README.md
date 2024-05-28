@@ -19,7 +19,7 @@
 
 **People :**
 
-- 
+- [Isabelle Arvert](http://www.isabellearvers.com/)
 
 **Project :**
 
